@@ -1,1 +1,0 @@
-# kuznetsowatan-lab.github.io
